@@ -1,1 +1,1 @@
-My first attempt at GitHub
+It's quite interesting... and learning continues.. :)
